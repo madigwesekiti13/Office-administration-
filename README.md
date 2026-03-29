@@ -1,4 +1,4 @@
-Sekiti-Madigwe-Portfoliom my ,cv
+Sekiti-Madigwe-Portfoliom my ,CV
 My CV for learnership opportunities 
 
 Sekiti Madigwe:  Professional Portfolio
