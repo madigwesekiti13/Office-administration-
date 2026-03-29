@@ -1,6 +1,5 @@
 Sekiti-Madigwe-Portfoliom my ,cv
 My CV for learnership opportunities 
-README 
 
 Sekiti Madigwe:  Professional Portfolio
 
